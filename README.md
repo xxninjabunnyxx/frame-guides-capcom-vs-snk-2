@@ -1,0 +1,1 @@
+# frame-guides-capcom-vs-snk-2
